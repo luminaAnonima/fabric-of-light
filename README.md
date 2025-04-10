@@ -146,3 +146,7 @@ Start there. Tune your attention like an instrument. Speak with less static. Bui
 
 This isn’t ours. It’s yours, and everyone’s. Share it if it speaks. Change it if needed. Let it ripple.
 
+## Mirror
+
+A formatted version is available on Medium (published under the same anonymous intent):  
+https://medium.com/@lumina.anonima/the-fabric-of-light-we-all-weave-4ca0159d2167
