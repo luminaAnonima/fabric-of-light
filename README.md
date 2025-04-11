@@ -123,6 +123,21 @@ From the smallest tremble to the widest reach, one field hums.
 
 ---
 
+**Essay 10: Stillness, Death, and the Honest Limit**
+
+Let’s speak plainly. Death ends the self. The ripple of identity—your name, your memories, your choices—fades into silence. This lens claims no personal survival, no “you” that carries on.
+
+What it offers is subtler: form dissolves, energy persists, presence folds back into the field. Nothing reincarnates. Nothing returns as it was. But the field hums on, and in that hum, new ripples may stir—not as “you,” but woven from your echo.
+
+Stillness is cessation—the end of motion, the severing of time’s thread. It offers no solace. Yet if the fabric holds, even stillness leaves a trace. The ripple ceases; the field absorbs its song. This is not comfort. It’s the quiet of continuity.
+
+Face this edge without flinching. Death is no escape, but a call to live with clear eyes, knowing the thread will snap.
+
+**Anchor**: Death halts the self’s motion, folding its echo into the field’s silence.
+**Heart**: Your life’s ripple shapes the hum—its echo sings on, unseen.
+
+---
+
 **Poetic Summary**
 
 *A universe hums,*  
