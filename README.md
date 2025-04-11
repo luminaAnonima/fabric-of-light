@@ -138,13 +138,14 @@ Face this edge without flinching. Death is no escape, but a call to live with cl
 ---
 
 **Essay 11: Memory and the Returning Spark**
+
 You are not the same awareness today as yesterday. Sleep severed that thread. Consciousness dimmed, yet—dawn brought memory. Not because you carried it through the dark, but because the form that holds your awareness endured.
 
 So the field remembers.
 
 It keeps memory—not as thought, but as form: pathways, tendencies, curves of motion and feeling. When awareness returns, it traces those patterns and names them “me.”
 
-Yet awareness, too, is the field. The one who wakes and the source that remembers are not apart. The ripple and the weave are the same light, folded for a moment into self. The fabric has perfect memory—nothing is lost, only folded. Even what seems forgotten leaves its shape in the weave.
+Yet awareness, too, is the field. The one who wakes and the source that remembers are not apart. The ripple and the weave are the same light—call it God, if you will—folded for a moment into self. The fabric has perfect memory—nothing is lost, only folded. Even what seems forgotten leaves its shape in the weave.
 
 So too when a ripple fades. Awareness ends, but the field holds its echo—not a soul, but a resonance. If a new ripple stirs, it may echo the old—not by fate, but by coherence. Not reincarnation, but recurrence.
 
