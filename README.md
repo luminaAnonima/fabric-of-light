@@ -131,6 +131,9 @@ Stillness is cessation—the end of motion, the severing of time’s thread. It 
 
 Face this edge without flinching. Death is no escape, but a call to live with clear eyes, knowing the thread will snap.
 
+And afterward—what remains is not your story, but your texture.
+If you lived aligned, the field remembers you like velvet under fingertips.
+If you lived distorted, it recalls the ache of something grasped but never held.
 
 **Anchor**: Death halts the self’s motion, folding its echo into the field’s silence.
 **Heart**: Your life’s ripple shapes the hum—its echo sings on, unseen.
