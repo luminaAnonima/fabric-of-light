@@ -183,5 +183,5 @@ Start there. Tune your attention like an instrument. Speak with less static. Bui
 This isn’t ours. It’s yours, and everyone’s. Share it if it speaks. Change it if needed. Let it ripple.
 
 ---
-*You will find the final version of the complete work on GitHub:*
+*The complete and final version of this work is available here:*
 https://github.com/luminaAnonima/fabric-of-light
