@@ -1,5 +1,3 @@
-**The Fabric of Light**
-
 *This is a philosophical exploration presented in poetic form. It uses metaphor—light, fabric, ripple—to describe a non-dual cosmology that blends metaphysics, ethics, and systems thinking. It's meant as a lens, not a doctrine.*
 
 ---
