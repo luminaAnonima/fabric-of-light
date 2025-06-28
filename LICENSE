@@ -1,0 +1,26 @@
+Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International (CC BY-NC-SA 4.0)
+
+This work may be shared and adapted for non-commercial purposes, provided appropriate credit is given and adaptations are licensed under the same terms.
+
+You must give appropriate credit, provide a link to the license, and indicate if changes were made.
+
+You may not use the material for commercial purposes.
+
+If you remix, transform, or build upon the material, you must distribute your contributions under the same license as the original.
+
+License summary: https://creativecommons.org/licenses/by-nc-sa/4.0/
+Full legal code: https://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
+
+## Licensing Notes
+
+### This Framework
+The philosophical framework, essays, and documentation are licensed under CC BY-NC-SA 4.0.
+
+### Technical Implementations
+Software implementations of these principles may use more permissive licenses to encourage adoption, but must:
+1. Credit the original framework
+2. Comply with the Integrity License principles outlined in the appendices
+3. Include the risk assessment and red flags documentation
+
+### Commercial Applications
+Commercial use of implementations requires demonstrable alignment with the ethical principles outlined herein. Please open an issue in this repository for guidance on compliance.
