@@ -1190,7 +1190,6 @@ This isn't ours. It's yours, and everyone's. Share it if it speaks. Change it if
 - [The Fabric of Light - Complete Table of Contents](table_of_contents.md)
 - [Field Notes](notes/) - Lived reflections, critiques, and observations
 - [Companions](companions/) - Extended reflections and technical explorations
-- [Appendices](appendix/) - Implementation frameworks and formal specifications
 - [Invitation to Contribute](invitation_to_contribute.md) - How to participate in this living work
 
 ---
