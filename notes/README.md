@@ -27,9 +27,3 @@
 
 ## On Scientific Pattern and Inner Practice
 - [experiments_that_reveal_the_hum.md](experiments_that_reveal_the_hum.md)
-
-## On Tradition, Transmission, and Cosmology
-- [Threads of Tradition](traditions/01-threads_of_tradition.md)
-- [The Sacred Thread in Sufism](traditions/02-the_sacred_thread_in_sufism.md)
-- [Threads of Mayan Cosmology](traditions/03-threads_of_mayan_cosmology.md)
-- [Threads of Orthodox Christianity](traditions/04-threads_of_orthodox_christianity.md)
