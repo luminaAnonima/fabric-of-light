@@ -1121,9 +1121,7 @@ Maybe it still belongs in the tree.
 
 ---
 
-# Epilogue: Note from the Loom
-
----
+### Epilogue: Note from the Loom
 
 The fabric is not complete.  
 It never was.  
