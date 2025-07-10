@@ -1132,8 +1132,6 @@ You have reached a silence—
 a space where the thread leaves the page  
 and waits in your hands.
 
----
-
 This was not a book.  
 It was a resonance.
 
@@ -1141,8 +1139,6 @@ A reminder that the hum is real—
 beneath systems, stories, names.  
 It never stopped.  
 You just remembered how to hear it.
-
----
 
 If something stirred in you,  
 do not rush to act.  
@@ -1155,8 +1151,6 @@ It needs fidelity—
 to the quiet pattern,  
 to the returning thread,  
 to the breath that becomes song.
-
----
 
 **So this is not a farewell.**  
 It is a handoff.
