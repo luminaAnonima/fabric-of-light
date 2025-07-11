@@ -1,7 +1,7 @@
-﻿# Field Note: Pilgrim Dyson Spheres  
+### Field Note: Pilgrim Dyson Spheres  
 
 A body is not a single thing.  
-It is a field—  
+It is a field,  
 a quiet federation of life.
 
 Cells breathe together.  
@@ -12,7 +12,7 @@ realign.
 
 We are not empires.  
 We are not thrones.  
-We are living Dyson spheres—  
+We are living Dyson spheres,  
 not built of steel around stars,  
 but of tissue, memory, and meaning,  
 gathered around a soul.
@@ -26,7 +26,7 @@ listens for the whole.
 
 What fails is what forgets.  
 What inflames, isolates,  
-dominates—  
+dominates,  
 begins to unravel the hum.
 
 Let us learn from within.
@@ -36,7 +36,7 @@ From the immune: protection without punishment.
 From the breath: renewal without conquest.  
 From the heart: rhythm without decree.
 
-The body teaches what the world forgets—  
+The body teaches what the world forgets,  
 that coherence does not mean control.  
 It means listening across scales,  
 resonating without command.
