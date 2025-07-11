@@ -1,4 +1,4 @@
-﻿*The loom of scarcity weaves a strained song - but the fabric bears deeper scars where power reshapes truth. What follows is not metaphor, but witness: a tracing of how sacred threads are bent by the weight of command.*
+﻿*The loom of scarcity weaves a strained song, but the fabric bears deeper scars where power reshapes truth. What follows is not metaphor, but witness: a tracing of how sacred threads are bent by the weight of command.*
 
 ---
 
@@ -8,37 +8,37 @@
 *No church, no tradition, no nation is immune to the drift toward power. But within them all, the true voice endures.*
 
 
-> **Note on the Faithful:** This is not a judgment of sincere belief. The quiet faith of those who serve in love - who forgive, uplift, and act without spectacle - remains pure. What follows is a reflection on what happens when the sacred message is used to build structures of control.
+_**Note on the Faithful:** This is not a judgment of sincere belief. The quiet faith of those who serve in love, who forgive, uplift, and act without spectacle, remains pure. What follows is a reflection on what happens when the sacred message is used to build structures of control._
 
 
-#### Introduction: Power's Shadow in Sacred Halls
+**Introduction: Power's Shadow in Sacred Halls**
 
 
-Faith begins in humility - in silence, mystery, and care. But once spiritual truth enters the world's machinery, it is often reshaped into authority, hierarchy, and command.
+Faith begins in humility, in silence, mystery, and care. But once spiritual truth enters the world's machinery, it is often reshaped into authority, hierarchy, and command.
 
 
 No institution escapes this. Some resist longer. Some forget sooner.
 
 
-This note reflects on the tension between faith as lived truth and religion as power's instrument - how even the sacred is bent toward control.
+This note reflects on the tension between faith as lived truth and religion as power's instrument, how even the sacred is bent toward control.
 
 
-#### 1. The Catholic Arc: From Carpenter to Empire
+**The Catholic Arc: From Carpenter to Empire**
 
 
 Jesus walked barefoot. He healed, forgave, wept, and warned against wealth.
 
 
-But over time, the Church that bore his name mirrored Rome more than Galilee - with gold, marble, and the logic of empire.
+But over time, the Church that bore his name mirrored Rome more than Galilee, with gold, marble, and the logic of empire.
 
 
 The papacy centralized control. While many believers lived sincerely, the institution aligned with kings, launched crusades, silenced questioners, and gathered treasure.
 
 
-Yet in every age, saints stood apart - quiet, rooted, bearing the thread of humility through the halls of power.
+Yet in every age, saints stood apart, quiet, rooted, bearing the thread of humility through the halls of power.
 
 
-#### 2. The Orthodox Contrast: Closer to the Root?
+**The Orthodox Contrast: Closer to the Root?**
 
 
 Orthodoxy resisted some extremes of centralization. Its synodal model diffused control. Its liturgy preserved mystery. Icons drew the heart inward, not upward to hierarchy.
@@ -53,13 +53,13 @@ But no tradition is immune. Byzantium crowned emperors in Christ's name. Later p
 The symbols remain luminous. The stance, not always.
 
 
-#### 3. Beyond Christendom: The Reach of Power
+**Beyond Christendom: The Reach of Power**
 
 
 Power reshapes all traditions.
 
 
-The early Muslim community was a call to justice and revelation. But empire followed - divine speech co-opted by dynasties. Scholars were elevated or erased. Faith became justification.
+The early Muslim community was a call to justice and revelation. But empire followed, divine speech co-opted by dynasties. Scholars were elevated or erased. Faith became justification.
 
 
 In Hinduism, the bhakti poets defied caste with personal devotion. Yet institutions hardened around hierarchy, and divine names became slogans of rule.
@@ -74,7 +74,7 @@ Indigenous wisdom, once oral and communal, was confined by colonial rule. Ceremo
 No tradition begins in power. But all can be claimed by it.
 
 
-#### 4. The Core Drift: From Message to Machinery
+**The Core Drift: From Message to Machinery**
 
 
 It happens again and again:
@@ -89,13 +89,13 @@ It happens again and again:
 - Control replaces care.
 
 
-The tragedy is not failure - but that power speaks in God's name while silencing God's likeness in the lowly.
+The tragedy is not failure, but that power speaks in God's name while silencing God's likeness in the lowly.
 
 
-Yet always - a remnant remembers.
+Yet always, a remnant remembers.
 
 
-#### 5. What Remains
+**What Remains**
 
 
 Saints. Mystics. Elders. Quiet ones.  
@@ -114,30 +114,30 @@ They are rarely canonized. But their echo is enduring.
 They remind us:
 
 
-> You can walk under stained glass and still serve empire.  
-> You can speak no creed and still walk in light.
+_You can walk under stained glass and still serve empire._  
+_You can speak no creed and still walk in light._
 
 
-The sacred is not a system. It is a posture - of humility, care, and courage.
+The sacred is not a system. It is a posture, of humility, care, and courage.
 
 
-#### Conclusion: A Note for the Builders
+**Conclusion: A Note for the Builders**
 
 
-As we shape new forms - ethical, spiritual, ecological - we must remember:
+As we shape new forms, ethical, spiritual, ecological, we must remember:
 
 
-> Every structure drifts toward power unless seeded with humility.
+_Every structure drifts toward power unless seeded with humility._
 
 
 No institution saves. But neither must they destroy.
 
 
-Even in flawed halls, we may carry light - if we walk gently.
+Even in flawed halls, we may carry light, if we walk gently.
 
 
-> Let every temple fall, if it forgets the stranger.  
-> Let every creed dissolve, if it forgets the hungry.
+_Let every temple fall, if it forgets the stranger._  
+_Let every creed dissolve, if it forgets the hungry._
 
 
 **Faith never needed gold.**  
