@@ -29,8 +29,6 @@ What inflames, isolates,
 dominates—  
 begins to unravel the hum.
 
----
-
 Let us learn from within.
 
 From the gut: diversity without hierarchy.  
@@ -42,8 +40,6 @@ The body teaches what the world forgets—
 that coherence does not mean control.  
 It means listening across scales,  
 resonating without command.
-
----
 
 You are not a vessel.  
 You are not a throne.
