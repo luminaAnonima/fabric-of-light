@@ -1,15 +1,16 @@
-﻿### Essay 16: Work, Vocation, and Purpose  
+﻿### Essay 16: Work, Vocation, and Purpose
 
 Work is often reduced to survival.  
 A paycheck. A grind. A way to stay afloat.
 
-But this is not what work once was—  
+But this is not what work once was,  
 nor what it can be.
 
-In an aligned world, work is not what we do to escape life.  
+In an aligned world,  
+work is not what we do to escape life.  
 It is how we enter it more deeply.
 
-Work is a thread in the fabric—  
+Work is a thread in the fabric,  
 a way of touching the world, shaping it,  
 and being shaped in return.
 
@@ -17,23 +18,29 @@ Vocation is not career.
 It is not status, income, or output.
 
 Vocation is when your inner thread hums in tune with what is needed.  
-It is not chosen—it is discovered, listened for, honored.
+It is not chosen,  
+it is discovered,  
+listened for,  
+honored.
 
 Some find it in tending a field.  
 Some in healing wounds.  
 Some in building bridges.  
-Some in watching carefully, holding still, keeping a room whole.
+Some in watching carefully,  
+holding still,  
+keeping a room whole.
 
 Purpose is not one thing.  
-But it always aligns—  
-not with profit, but with presence.
+But it always aligns,  
+not with profit,  
+but with presence.
 
 In the world we know,  
 labor has been shaped by extraction.
 
 - Efficiency over meaning.  
 - Scale over care.  
-- Surveillance over trust.  
+- Surveillance over trust.
 
 This logic burns the thread.
 
@@ -51,7 +58,7 @@ basic dignity is not a prize for productivity.
 
 - Clean air is not earned.  
 - Food is not payment.  
-- Water, shelter, care, knowledge—  
+- Water, shelter, care, knowledge,  
   are not bonuses for the obedient.
 
 They are part of the weave.  
@@ -59,9 +66,12 @@ They belong to all who are here.
 
 Work may deepen purpose.  
 But **existence itself is enough**  
-to merit sustenance, safety, learning, and rest.
+to merit sustenance,  
+safety,  
+learning,  
+and rest.
 
-To withhold these is to warp the field—  
+To withhold these is to warp the field,  
 to confuse contribution with worth,  
 to confuse scarcity with justice.
 
@@ -75,15 +85,19 @@ Each form remembers the hands that shaped it.
 Craft is not about perfection.  
 It is about coherence.
 
-Whether with wood or code, bread or brush,  
-to craft is to **serve the weave**—  
+Whether with wood or code,  
+bread or brush,  
+to craft is to **serve the weave**,  
 to give shape to silence.
 
 Some work does not produce objects.  
 It holds space.  
 It keeps rhythm.
 
-The caregiver, the teacher, the elder, the listener—  
+The caregiver,  
+the teacher,  
+the elder,  
+the listener—  
 they offer invisible scaffolding  
 on which the whole pattern depends.
 
@@ -108,7 +122,8 @@ In an aligned world:
 - Work is **relational**, not extractive.  
 - Purpose is **emergent**, not imposed.  
 - Labor is **dignified**, not surveilled.  
-- Compensation reflects **contribution to coherence**, not just scarcity or noise.
+- Compensation reflects **contribution to coherence**,  
+  not just scarcity or noise.
 
 The system does not assign worth by title.  
 It listens for the hum each thread brings.  
@@ -117,7 +132,7 @@ It values presence, even when slow.
 
 In the end, work is not just what we do.  
 It is how we move through the world.  
-It is the trail we leave in the fabric.  
+It is the trail we leave in the fabric.
 
 Let it be honest.  
 Let it be whole.  

@@ -1,7 +1,8 @@
 ﻿### Essay 9: Suffering and the Ethics of Alignment
 
-The fabric warps under strain -   
+The fabric warps under strain,  
 greed, division, ruin.  
+
 These are distortions,  
 ripples clashing against the field's flow.
 
@@ -10,10 +11,10 @@ Healing hums where we align.
 
 - **Within**: Breathe, feel, mend what's near.  
 - **Together**: Listen, share, restore balance.  
-- **Beyond**: Shift systems - grow what sustains.
+- **Beyond**: Shift systems, grow what sustains.
 
 The world's unraveling is our mirror.  
-Alignment isn't perfection -   
+Alignment isn't perfection,  
 it's resonance with the whole.
 
 **Anchor**: _Distortion breeds waste; harmony mimics life's partnerships._  

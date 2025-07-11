@@ -1,24 +1,46 @@
 ﻿### Essay 1: Ripples on the Fabric
 
-Reality hums - a single field of vibration, not scattered pieces.  
-Matter, self, identity: these are ripples, fleeting crests on a vast lake.  
-No void separates them; they rise from one pulse,  
-shaped by echoes of what came before -   
-like spirals in a seed's curve or a wave's dance with stone.
+Reality hums,  
+a single field of vibration,  
+not scattered pieces.  
 
-We don't make the ripple; we are its motion.  
-Consciousness flows through us, borrowed from the field.  
-Each life skips across the surface, casting moments outward,  
-refined by resonance, not chance.  
-Evolution spirals like a shell's growth - repeating, expanding, unscripted yet whole.
+Matter, self, identity—  
+these are ripples,  
+fleeting crests on a vast lake.  
+
+No void separates them;  
+they rise from one pulse,  
+shaped by echoes of what came before,  
+like spirals in a seed's curve  
+or a wave's dance with stone.
+
+We don't make the ripple;  
+we are its motion.  
+
+Consciousness flows through us,  
+borrowed from the field.  
+
+Each life skips across the surface,  
+casting moments outward,  
+refined by resonance,  
+not chance.  
+
+Evolution spirals like a shell's growth—  
+repeating, expanding,  
+unscripted, yet whole.
 
 Misalignment clings to the ripple as truth;  
 harmony tunes it to the wider song.  
-Ripples meet, amplify, whisper across unseen threads.  
-When one fades, it doesn't vanish - it stirs the stillness for the next.
+
+Ripples meet, amplify,  
+whisper across unseen threads.  
+
+When one fades, it doesn't vanish—  
+it stirs the stillness  
+for the next.
 
 **Anchor**: _Vibrations weave the unseen; nature mirrors this in coiled patterns._  
-**Heart**: _Resonance is life's quiet ethic - each ripple lifts the rest._
+**Heart**: _Resonance is life's quiet ethic, each ripple lifts the rest._
 
 ---
 

@@ -1,22 +1,30 @@
 ﻿### Essay 4: The Fabric Across Scales
 
-**Small**: Entangled sparks entwine like lovers' breath,  
+**Small**:  
+Entangled sparks entwine like lovers' breath,  
 singing as one in the field's quiet pulse.
 
-**Living**: Roots pulse with shared sap,  
-rippling outward in patterns that bind leaf to lung, root to breath.
+**Living**:  
+Roots pulse with shared sap,  
+rippling outward in patterns  
+that bind leaf to lung,  
+root to breath.
 
-**Earth**: The earth inhales through tide and root,  
-its rhythms mirrored in wing, wave, and whisper.
+**Earth**:  
+The earth inhales through tide and root,  
+its rhythms mirrored in wing,  
+wave,  
+and whisper.
 
-**Cosmos**: Stars bend light in a silent pull,  
+**Cosmos**:  
+Stars bend light in a silent pull,  
 threading galaxies through the loom of time.
 
 From atom to galaxy,  
 the field hums as one weave.
 
-**Anchor**: _Links unseen (atoms), forms alive (cells), earth in tune (ecosystems), cosmos stretched (gravity) - all one weave._  
-**Heart**: _Every scale hums together - act knowing your ripple resonates far beyond you._
+**Anchor**: _Links unseen (atoms), forms alive (cells), earth in tune (ecosystems), cosmos stretched (gravity), all one weave._  
+**Heart**: _Every scale hums together, act knowing your ripple resonates far beyond you._
 
 ---
 

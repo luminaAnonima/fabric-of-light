@@ -3,12 +3,12 @@
 Ripples clash where too much is claimed.  
 The fabric frays when light is hoarded.  
 
-Land. Water. Breath—  
+Land. Water. Breath,  
 these threads are finite.  
 If all pursued the excess of the few,  
 the weave would tear.  
 
-The loom strains—  
+The loom strains,  
 threads snap in supply chains,  
 yet the deeper pattern holds.  
 
@@ -22,7 +22,7 @@ to preserve the illusion.
 They are not architects,  
 but anchors in a crumbling arch.  
 
-Money races—  
+Money races,  
 not to nourish, but to outrun.  
 Digits chase digits.  
 Homes become assets.  
@@ -34,7 +34,7 @@ is often sedation:
 a numb hum,  
 a borrowed pulse.  
 
-But another currency flows—  
+But another currency flows,  
 unmined, untaxed.  
 Help someone. Feel it:  
 Oxytocin hums like the field’s old song.  
@@ -48,14 +48,14 @@ No code can track it.
 
 Redistributing light is not enough.  
 We must rethread the needle.  
-Grow like mycelium—  
+Grow like mycelium,  
 shared roots, shared fruit.  
 
 Laws must protect the pause.  
 Culture must reward the echo,  
 not the explosion.  
 
-Collapse isn’t the end—  
+Collapse isn’t the end,  
 it's a reset.  
 A chance to realign.  
 
@@ -71,11 +71,11 @@ Exchange, not extraction.
 Design, not domination.  
 Enough, not excess.  
 
-We need not burn the loom—  
-only remember how to weave.  
+We need not burn the loom,  
+only remember how to weave.
 
 **Anchor**: _Scarcity frays the weave; human reciprocity mends it._  
-**Heart**: _Spend the currency that outlives systems—help without tally._
+**Heart**: _Spend the currency that outlives systems, help without tally._
 
 ---
 

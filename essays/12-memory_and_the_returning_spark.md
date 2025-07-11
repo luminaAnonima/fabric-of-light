@@ -2,23 +2,27 @@
 
 You are not the same awareness today as yesterday.  
 Sleep severed that thread.  
-Dawn brought memory -   
+Dawn brought memory,  
 not because you carried it,  
 but because form endured.
 
 So the field remembers.
 
 It keeps memory as form:  
-pathways, curves, feeling.
+pathways,  
+curves,  
+feeling.
 
 When awareness returns,  
 it names them "me."
 
 Yet awareness is also the field.  
-Ripple and weave - same light.  
-Some call this God; others, consciousness; others, nature's pattern.
+Ripple and weave, same light.  
+Some call this God,  
+others, consciousness,  
+others, nature's pattern.
 
-Every echo is kept -   
+Every echo is kept,  
 the eyes that saw us,  
 the breath we shared,  
 the words we spoke.
@@ -28,26 +32,26 @@ leaves its shape in the weave.
 
 When a ripple fades,  
 awareness ends,  
-but the field holds its echo.
-
-A resonance many call soul.
+but the field holds its echo—  
+a resonance many call soul.
 
 If another ripple stirs,  
 it may echo the old.  
-Not by fate - by coherence.
+Not by fate,  
+but by coherence.
 
 We live the same life,  
 not in repetition,  
 but in refinement.
 
 Life is borrowed light.  
-It returns -   
+It returns,  
 not to nothing,  
 but to the source  
 that recalls yesterday's you.
 
 **Anchor**: _Memory lives in form; the field recalls through resonance, never losing a thread._  
-**Heart**: _We are not preserved - we are the field's light, folded anew._
+**Heart**: _We are not preserved, we are the field's light, folded anew._
 
 ---
 

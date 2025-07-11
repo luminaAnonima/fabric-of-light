@@ -1,17 +1,24 @@
 ﻿### Essay 17: Justice, Correction, and the Way of Return
 
-Justice is not a scale, but a pattern.  
-Not a judgment, but a mending.  
-The fabric does not ask who is pure, but who can be returned—  
+Justice is not a scale,  
+but a pattern.  
+Not a judgment,  
+but a mending.  
+
+The fabric does not ask who is pure,  
+but who can be returned,  
 who can be brought back into resonance.
 
 All patterns fray.  
-Every field gathers noise—discord, neglect, distortion.  
+Every field gathers noise—  
+discord, neglect, distortion.  
+
 To correct is not to cut out the flawed thread,  
 but to draw it back toward coherence.
 
 Retribution does not restore the fabric.  
-Punishment tears, isolates, narrows the field to what is damaged,  
+Punishment tears, isolates,  
+narrows the field to what is damaged,  
 forgetting what is still alive.
 
 Correction in the logic of the fabric is not a weapon,  
@@ -20,15 +27,17 @@ an invitation to realign,
 to remember the original rhythm,  
 to let the torn thread find its way back.
 
-To punish is to sever;  
-to show the way is to remember that all are needed,  
+To punish is to sever.  
+To show the way  
+is to remember that all are needed,  
 that resonance is collective.
 
 When a harm is done,  
 the question is not “Who is to blame?”  
 but “Where did the pattern fail?”  
 What resonance was lost?  
-What care, what attention, what memory could prevent the next unraveling?
+What care, what attention,  
+what memory could prevent the next unraveling?
 
 A justice that only punishes  
 grows brittle.  
@@ -39,26 +48,32 @@ But a justice that shows the way
 grows strong.  
 It listens for the root cause,  
 not just the surface noise.  
-It restores, repairs, renews—  
+It restores, repairs, renews,  
 not because it ignores harm,  
 but because it honors the field.
 
-The aim is not perfection, but return.  
-No thread is too tangled;  
-no pattern is forever lost.  
+The aim is not perfection,  
+but return.  
+No thread is too tangled.  
+No pattern is forever lost.
+
 Correction is not a courtroom,  
-but a circle—  
+but a circle,  
 where the injured and the injurer both can speak,  
-where the field is held long enough for truth to ripple.
+where the field is held  
+long enough for truth to ripple.
 
 This is not naïve forgiveness.  
 Real mending is harder than punishment.  
-It demands patience, honesty, and a willingness to see  
+It demands patience,  
+honesty,  
+and a willingness to see  
 that what is broken in one  
 is often broken in all.
 
 Justice in the fabric means:  
-Do not punish, but show the way.
+Do not punish,  
+but show the way.
 
 **Anchor**: _Correction is mending, not exile; restoration over retribution._  
 **Heart**: _Justice is returning all threads to the weave—no thread forgotten._

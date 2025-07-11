@@ -1,80 +1,88 @@
-﻿### Essay 14: Love, Friendship, and Intimacy  
+﻿### Essay 14: Love, Friendship, and Intimacy
 
 Love is not possession.  
 Not transaction.  
-Not earned, proven, or enforced.  
+Not earned,  
+proven,  
+or enforced.
 
-Love is alignment—  
+Love is alignment,  
 a softening of boundaries,  
 a resonance that asks nothing  
 but the willingness to listen  
-and the courage to be changed.  
+and the courage to be changed.
 
 To be loved,  
 loosen the thread of self.  
-Not erased—  
-porous.  
+Not erased,  
+porous.
 
 Ego seeks symmetry.  
 Love allows imbalance.  
 Ego wants control.  
-Love is surrender—  
+Love is surrender,  
 not to the other,  
-but to the space between.  
+but to the space between.
 
 You do not vanish.  
 You become part of what holds us both.
 
 True love demands no return.  
 It gives because giving aligns.  
-It offers attention, care, presence—  
+It offers attention,  
+care,  
+presence,  
 not leverage,  
-but ripple.  
+but ripple.
 
 To love is to vow:  
 *I keep my thread tuned,  
 even when yours tangles.*  
 *I guard the field between us,  
-even when you falter.*  
+even when you falter.*
 
-Love is clarity without demand—  
+Love is clarity without demand,  
 knowing when to stay,  
 when to release,  
-when to hold silence.  
+when to hold silence.
 
 Not all love is romantic.  
 Friendship is love without claim:  
 *I see your thread;  
-I walk beside it.*  
+I walk beside it.*
 
-It binds not—  
+It binds not,  
 harmonizes.  
 Not fused,  
-but near—  
-stars in shared constellation.  
+but near,  
+stars in shared constellation.
 
 In dissonant noise,  
 friendship sings:  
-alignment without conquest.  
+alignment without conquest.
 
 Intimacy is not exposure,  
 proximity,  
-or intensity.  
+or intensity.
 
-It is gentle interference—  
+It is gentle interference,  
 two patterns crossing  
-to amplify, not erode.  
+to amplify,  
+not erode.
 
 True intimacy listens before touching.  
 Asks not “What can I take?”  
 but “What can I witness?”  
 “Carry, if briefly?”  
-“What in you aches to be remembered?”  
+“What in you aches to be remembered?”
 
-A shared rhythm—  
-imperfect, honest, alive.  
-  
-Love includes family-by blood or by choice-  
+A shared rhythm,  
+imperfect,  
+honest,  
+alive.
+
+Love includes family,  
+by blood or by choice,  
 and solitude,  
 where the field whispers only to you.
 
@@ -82,28 +90,28 @@ To love others,
 return first to your thread.  
 Rest.  
 Let it hum.  
-Only then reenter the weave—  
-without distortion.  
+Only then reenter the weave,  
+without distortion.
 
 The family that controls  
 smothers the hum.  
 The one that listens  
-weaves coherence across generations.  
- 
+weaves coherence across generations.
+
 Love is not private.  
 It reshapes the pattern.  
 A loved child ripples outward.  
-A loved elder leaves peace.  
+A loved elder leaves peace.
 
-Love is power recalibrated—  
+Love is power recalibrated,  
 the giver, unpaid,  
 becomes the thread  
-that steadies the field.  
+that steadies the field.
 
 *To love is to give, not to ask*
 
-**Anchor**: *Love is resonance—the field’s hum between threads, not fusion, but fidelity.*  
-**Heart**: *Steady threads lift the weave.*
+**Anchor**: _Love is resonance, the field’s hum between threads, not fusion, but fidelity._  
+**Heart**: _Steady threads lift the weave._
 
 ---
 
